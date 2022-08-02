@@ -6,6 +6,3 @@
 - **購買我的世界外挂加我**
 - 出售各種泄露
 
-![李明哲慘遭出道](https://s2.loli.net/2022/08/02/ZTtXvNsWVSF9fmQ.jpg)
-
-Hacked by BedWarsKing 😎
